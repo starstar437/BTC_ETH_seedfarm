@@ -67,4 +67,4 @@ A:
 2. I get 10% from every wallet you find.
 Q: Is there a referral program?
 A: Yes, you can become a part of my team and get your extra benefit.
-Telegram Support 24/7 @amercorm
+Telegram Support 24/7 @goodsalesma
